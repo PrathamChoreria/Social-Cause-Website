@@ -4,3 +4,4 @@ also donate for a cause
 
 ![image_1](https://github.com/PrathamChoreria/Social-Cause-Website/assets/93367121/096ab125-3655-4b9a-8e3d-f3bc2724e325)
 
+![image2](https://github.com/PrathamChoreria/Social-Cause-Website/assets/93367121/0b27e7cb-a23e-4954-8f05-db09046d573f)
